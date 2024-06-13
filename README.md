@@ -1,1 +1,1 @@
-# Sistema-Coloquio-De-Vinculaci-n-Profesional-CVP-2024---Automatizado
+# SISTEMA CVP - AUTOMATIZADO PARA LA UNIVERSIDAD DE COLIMA - FIME
